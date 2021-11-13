@@ -3,4 +3,4 @@ contém Marcelos
 
 
 ##Origem dos Marcelos
-Marcelos são uma raça originadas da Bosnia. 
+Marcelos são uma raça originada da Bosnia. 
